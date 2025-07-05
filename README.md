@@ -20,4 +20,4 @@
 
 本站永久免费，永久免费，永久免费——这是我们最底线的承诺。建议你将本站添加至浏览器书签，作为长期收藏的看片入口，每次打开，都能看到新内容、新体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/451203 ）</span>
